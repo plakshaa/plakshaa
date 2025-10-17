@@ -1,6 +1,6 @@
 # Hey there! 🌷
 
-I’m **Plaksha Sharma** ;) not perfect, just *passionately focused*.  
+I’m **Plaksha** ;) not perfect, just *passionately focused*.  
 ✨ Exploring, learning & experimenting my way through **code, design, and discovery**.  
 
 If I dream it 💭, I’ll build it ⚙️, break it 🧩, and rebuild it better.  
